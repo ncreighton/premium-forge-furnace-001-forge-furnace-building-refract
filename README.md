@@ -1,0 +1,2 @@
+# premium-forge-furnace-001-forge-furnace-building-refract
+Tired of second-guessing your refractory mix ratios or ending up with a forge that cracks on first heat? The Forge Furnace Building Refractory Liner Planner eliminates the guesswork, giving you a step‑by‑step system to engineer a durable, high‑performance liner that lasts.  This Notion template transforms chaotic forge building into a manageable, r
